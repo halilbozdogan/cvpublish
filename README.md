@@ -1,1 +1,1 @@
-﻿# cv.halilbozdogan.com
+﻿# https://cv.halilbozdogan.com
